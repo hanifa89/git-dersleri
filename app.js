@@ -1,0 +1,1 @@
+Today was soo cool and I have already cleaned most of the my room ans tried "special meal called grechka" delivered from Amazon.com. I have biled it and tried the first bag. It was tasty but I've got a little worry with these plastic package boiling foo and planning to do a litte reserch about it.
